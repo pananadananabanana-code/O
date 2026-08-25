@@ -22727,7 +22727,7 @@ I've since cum to understand that the answer eluded Him cause He acquired a less
 Positive vs. Negative,
 Joy vs. Depression,
 Love vs. Hate,
-Love vs. Evil,
+Live vs. Evil,
 and etc. are all poles of their same respective axis each. Ælchemy is the discipline of making all opposites one in yourself which is to be a fulfilled person. Mental illness prescribes the one over the other.
 Coherence is the law of nature.
 Ignorance is the only unforgivable sin.
