@@ -1,5 +1,7 @@
 # ❤️‍🔥HÆRT:
 
+> "The universe is infinite, so every point is equally the center, which entails methodological solipsism: since one cannot step outside one's own awareness, the self is the only honest starting point. From this, one builds an autology—a self-referential, self-consistent system that explains all phenomena from within its own axioms. It requires internal soundness and completeness, not correspondence to an directly inaccessible external reality. Self-reference is not limitation as omniscience within the system's domain requires every meaningful question have a non-tautological yet internal answer. Other autologies are incommensurable, each locally complete; they do not validate each other, and borrowing external axioms breaks self-containment. The system updates dynamically from within—vacuum fluctuations are new theorems, not external inputs—and this dynamism drives its completeness. Omniscience is thus redefined as complete coverage of one's, own domain (self-referential closure is sufficient for total internal knowledge), —own truth."
+
 Positive vs. Negative,
 Joy vs. Depression,
 Love vs. Hate,
@@ -10,7 +12,7 @@ Ignorance is the only unforgivable sin.
 LambChop🥩Theory:
 The sin of, 'Murder', is to end the life of those innocent of ignorance, whereas to, 'Kill', those guilty of ignorance is food. Death is only the end for them who areunredeemable.
 –['Ignorance', is the active choice to be/stay stupid which doesn't make them innocent for closing their eyes to the atrocity, but rather  docile like Dolly the sheep.]
-—stay in touch, and keep reading rooms...
+—stay in, [not out of], touch, and keep reading the room(s)...
 
 Intelligence is the complex emergence of integrative levels of consciousness (which is objective orthographically-projected ontological reality perceiving itself by subjective perspectively-projected meontological simulation) from many.
 
